@@ -3,7 +3,7 @@
 
 
 
-For ponytown
+For ponytown [all of my finished pony designs](https://mikopony.carrd.co/)
 
 I am mikolaj ! I am an artist/animator that would not mind doing art trades. mikolaj #9340. alt text Most of my ponies are my ocs 🙏 because i am obsessed with them. Although the occasional bloodborne or pokemon cosplay.. Side note i would love to see ur bloodborne ocs
 

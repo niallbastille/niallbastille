@@ -6,6 +6,8 @@
 For ponytown
 
 I am mikolaj ! I am an artist/animator that would not mind doing art trades. mikolaj #9340. alt text Most of my ponies are my ocs 🙏 because i am obsessed with them. Although the occasional bloodborne or pokemon cosplay.. Side note i would love to see ur bloodborne ocs
+
+[like all of my art yeeeah](https://toyhou.se/fatalfamilial)
 ![alt text](https://cdn.discordapp.com/attachments/1071941089969307759/1078198432507904071/Sillybilly.gif)
 I do like things.. bloodborne, the enemy series (charlie higson), pokemon, mccafferty, nicole dollanganger, destroy boys, trichechidae/pinnipeds, snails, idv. Kind of. Not really actually but i do like some of the characters, general horror media.
 ![alt text](https://cdn.discordapp.com/attachments/1071941089969307759/1098788008121094166/61861936_PICTA3g2FxVSVAz.gif)

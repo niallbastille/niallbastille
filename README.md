@@ -16,7 +16,7 @@ I do like things.. bloodborne, the enemy series (charlie higson), pokemon, mccaf
 ![alt text](https://cdn.discordapp.com/attachments/1071941089969307759/1098788008121094166/61861936_PICTA3g2FxVSVAz.gif)
 If you actually talk to me about this stuff i will love you forever
 
-Lastly, I don't have any icks. Boop me 100 times i will not shit my pants because I'm normal
+
 
 Anyway dizov with puppies time
 ![alt text](https://cdn.discordapp.com/attachments/1071941089969307759/1098788018380361858/62859833_EHShjoYTcrx6uRd.jpg)

@@ -5,7 +5,7 @@
 
 For ponytown 
 
-I am Sire ! I am an artist/animator. [mikolaj #9340.](https://discordapp.com/users/467102810450690049) Most of my ponies are my ocs or bloodborne characters .
+I am Sire ! I am an artist/animator. [discord.](https://discordapp.com/users/467102810450690049) Most of my ponies are my ocs or bloodborne characters .
 
 [all of my art](https://toyhou.se/niaII) /
 [inster graham](https://www.instagram.com/niallbastille?igsh=MXUzbHM2dXYyZGs5NQ==) /

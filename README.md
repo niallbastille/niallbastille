@@ -3,9 +3,9 @@
 
 
 
-For ponytown 
+For ponytown - Talk to me I love all who approach
 
-Artist/Animator. [discord.](https://discordapp.com/users/467102810450690049)
+Artist/Animator. Soulsborne enthusiast. [discord.](https://discordapp.com/users/467102810450690049)
 
 [all of my art](https://toyhou.se/niaII/art) /
 [inster graham](https://www.instagram.com/niallbastille?igsh=MXUzbHM2dXYyZGs5NQ==) /
